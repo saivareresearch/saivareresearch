@@ -1,4 +1,4 @@
-# 👋 Hello! I'm Sebastian, @saivareresearch
+# 👋 Hello! I'm Sebastian, @SAI-E Dynamics Research
 
 ## Welcome to My GitHub Profile!
 
